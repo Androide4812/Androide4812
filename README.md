@@ -1,4 +1,1 @@
 - 👋 Hi, I’m Diego De Q.
-- 👀 I’m interested in Videogames
-- 🌱 I’m currently learning Videogames developing
-- 💞️ I’m looking to collaborate on Videogames.
